@@ -29,7 +29,7 @@ Royalty Hero Accelerator offers a free entry point, allowing users to access tra
 
 It's important to note that additional expenses may be incurred for marketing, editing, proofreading, and cover design to fully utilize the training.
 
-[Join Royalty Hero Accelerator Now to Unlock Comprehensive Training](https://kelexbawz.com/royalty-hero)
+[Join Royalty Hero Accelerator Now to Unlock Comprehensive Training](https://whop.com/royalty-hero?a=kelechienwere1234)
 
 ## Who Is Royalty Hero Accelerator For?
 
@@ -57,7 +57,7 @@ Royalty Hero Accelerator is tailored for:
 
 * **Comprehensive Resources:** The course includes templates, checklists, and tools to streamline the publishing process.
 
-[Join Royalty Hero Accelerator Now to Access Exclusive Resources](https://kelexbawz.com/royalty-hero)
+[Join Royalty Hero Accelerator Now to Access Exclusive Resources](https://whop.com/royalty-hero?a=kelechienwere1234)
 
 ## Drawbacks and Considerations
 
@@ -87,4 +87,4 @@ Royalty Hero Accelerator offers a robust framework for individuals aiming to ent
 
 If you're committed to building a self-publishing business and are prepared to invest time and resources, Royalty Hero Accelerator could be a valuable asset in your journey.
 
-[Join Royalty Hero Accelerator Now to Launch Your Publishing Career](https://kelexbawz.com/royalty-hero)
+[Join Royalty Hero Accelerator Now to Launch Your Publishing Career](https://whop.com/royalty-hero?a=kelechienwere1234)
